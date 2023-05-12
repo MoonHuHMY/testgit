@@ -8,3 +8,4 @@ Beauty is in the eye of the beholder.
 Love is a rose.
 Where there's smoke, there's fire.
 Time heals all wounds.
+Life is like a box of chocolates, you never know what you're going to get.
