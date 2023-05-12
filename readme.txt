@@ -7,3 +7,4 @@ Looking for treasures in the ordinary world.
 Beauty is in the eye of the beholder. 
 Love is a rose.
 Where there's smoke, there's fire.
+Time heals all wounds.
