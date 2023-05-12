@@ -4,3 +4,4 @@ One day I became very rich.
 Everything is fine.
 Love conquers all.
 Looking for treasures in the ordinary world.
+Beauty is in the eye of the beholder. 
